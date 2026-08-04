@@ -1,16 +1,15 @@
-## Hi there 👋
+hi there! 💞
 
-<!--
-**softorbit/Softorbit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- you could call me Michael or Mikey for short I prefer mikey especially , keep in mind that Michael isn’t my real name!
 
-Here are some ideas to get you started:
+- I’ve created this account as a pony town aesthetical display nothing much lol
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- my favorite color is pink !🩷
+
+- my pronouns are she/her 
+
+-   I’ve been deeply inlove with unicorn core ever since childhood 🦄
+
+-   please interact with me I don’t bite ToT , you might as well think am offtab but am actually not
+
+  - homophobics / transphobics / pedos / predators DO NOT interact 
