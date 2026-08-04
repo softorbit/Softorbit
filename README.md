@@ -1,4 +1,5 @@
-<img width="1638" height="433" alt="IMG_2739" src="https://github.com/user-attachments/assets/846f920e-fe74-496f-942c-3c8c4b223885" />
+<img width="833" height="218" alt="IMG_2748" src="https://github.com/user-attachments/assets/ae3c094a-7b69-48cd-8302-27a2e6609a35" />
+
 <img width="500" height="543" alt="IMG_2744" src="https://github.com/user-attachments/assets/aeb7975c-962c-445f-ab68-d9b22dfdffcb" />
 
 
@@ -22,4 +23,5 @@ hi there! 💞
 -   please interact with me I don’t bite ToT , you might as well think am offtab but am actually not
 
   - homophobics / transphobics / pedos / predators DO NOT interact 
-<img width="1608" height="441" alt="IMG_2738" src="https://github.com/user-attachments/assets/f0c3d400-70fe-4d19-8d32-2211eeba4d52" />
+<img width="822" height="223" alt="IMG_2748" src="https://github.com/user-attachments/assets/090808cb-30a3-4be7-9e79-d34c6b5442ed" />
+
