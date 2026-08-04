@@ -29,6 +29,8 @@
 
 -   please interact with me I don’t bite ToT , you might as well think am offtab but am actually not
 
+-   just to let ya know that am taken so don’t even think of flirting with me or try Hit on me, it’s better if we keep things professional 
+
   - homophobics / transphobics / pedos / predators DO NOT interact
 
   - I would proudly say that am from Jordan, I really love my people 💕
