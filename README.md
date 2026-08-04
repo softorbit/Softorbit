@@ -13,7 +13,7 @@
 
 
 
-hi there! 💞
+                                HI THERE ! 💞
 
 - you could call me Michael or Mikey for short I prefer mikey especially , keep in mind that Michael isn’t my real name!
 
