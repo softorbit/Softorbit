@@ -15,7 +15,7 @@ hi there! 💞
 
 - I’ve created this account as a pony town aesthetical display nothing much lol
 
-- my favorite color is pink !🩷
+- i honestly have a pretty weird obsession with the color pink !🩷
 
 - my pronouns are she/her 
 
