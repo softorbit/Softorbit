@@ -18,6 +18,8 @@ hi there! 💞
 
 - I’ve created this account as a pony town aesthetical display nothing much lol
 
+- pleaseee if you’re going to take inspiration off of my skins take permission from me first to do so ! 💓 alot of people actually did that as an excuse to copy, and so because of that am not dealing with any of that anymore 
+
 - i honestly have a pretty weird obsession with the color pink !🩷
 
 - my pronouns are she/her 
@@ -29,6 +31,7 @@ hi there! 💞
   - homophobics / transphobics / pedos / predators DO NOT interact
 
   - I would proudly say that am from Jordan, I really love my people 💕
+
 
 <img width="540" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />
 
