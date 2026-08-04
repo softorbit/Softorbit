@@ -26,6 +26,11 @@ hi there! 💞
 
 -   please interact with me I don’t bite ToT , you might as well think am offtab but am actually not
 
-  - homophobics / transphobics / pedos / predators DO NOT interact 
+  - homophobics / transphobics / pedos / predators DO NOT interact
+
+  - I would proudly say that am from Jordan, I really love my people 💕
+
+<img width="540" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />
+
 <img width="822" height="223" alt="IMG_2748" src="https://github.com/user-attachments/assets/090808cb-30a3-4be7-9e79-d34c6b5442ed" />
 
