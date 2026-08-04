@@ -34,6 +34,8 @@
   - homophobics / transphobics / pedos / predators DO NOT interact
 
   - I would proudly say that am from Jordan, I really love my people
+
+  - trust me if you want to vent to me about anything such as de##repsion or family issues, am right here, even if I have never met you before am totally fine with it, comforting is the least I could do! 💞
   
    
 
