@@ -33,7 +33,7 @@
   
 - currently learning __farsi__ & __Español__
 
-- you could tell I have a pretty weird obsession with the color pink just by looking at my __Read.Me__
+- you could tell I have a pretty weird obsession with the color pink just by looking at my __README.md__
 
 -  I have been deeply in love with unicorncore ever since childhood 🦄💕
 
@@ -63,9 +63,9 @@
   
   pr**ators
   
-  homophobics
+  __homo__ phobics
   
-  transphobics
+  __trans__ phobics
   
   bigots
   
