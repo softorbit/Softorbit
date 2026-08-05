@@ -1,4 +1,4 @@
-<img width="833" height="218" alt="IMG_2748" src="https://github.com/user-attachments/assets/ae3c094a-7b69-48cd-8302-27a2e6609a35" />
+<img width="1000" height="218" alt="IMG_2748" src="https://github.com/user-attachments/assets/ae3c094a-7b69-48cd-8302-27a2e6609a35" />
 <img width="1228" height="151" alt="IMG_2756" src="https://github.com/user-attachments/assets/47eb7ce8-6dc8-4a90-b5cd-b8127b47e214" />
 
 <img width="935" height="304" alt="D2529364-8029-4E13-9405-28642ECB999A" src="https://github.com/user-attachments/assets/c4ff35a7-c675-4c91-bd43-966482971d4b" />
@@ -37,9 +37,9 @@
 
   - trust me if you want to vent to me about anything such as de##repsion or family issues, am right here, even if I have never met you before am totally fine with it, comforting is the least I could do! 💞
   
-   
+- I might as well consider adding more stuff onto this repo, but that’s all for now! Thanks xx💓   
 
-<img width="540" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  I might as well consider adding more stuff onto this repo, but that’s all for now! Thanks xx💓
+<img width="450" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
-<img width="1968" height="543" alt="IMG_2757" src="https://github.com/user-attachments/assets/cd83b2ec-8c9a-4b98-84ad-d813fc9a6d03" />
+<img width="1988" height="543" alt="IMG_2757" src="https://github.com/user-attachments/assets/cd83b2ec-8c9a-4b98-84ad-d813fc9a6d03" />
 
