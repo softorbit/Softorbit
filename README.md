@@ -45,14 +45,15 @@
   
 - most of the time when am sitting all alone I could be off tab doing random shi so don’t expect me to respond back right after you whisper me 💕
   
-- my fandoms are : eddsworld, countryhuman , country ball, metal family, Beatles , Five Nights at Freddy’s , Murder Drones !💞
+- my fandoms are : eddsworld, countryhuman , country ball, metal family, Beatles , Five Nights at Freddy’s , Murder Drones , arcane !💞
 
   *DNI* 
   p*dos
   pr**ators
   homophobics
   transphobics
-  
+  bigots
+  lazy typers
 
 <img width="450" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
