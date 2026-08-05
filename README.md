@@ -63,6 +63,7 @@
   
   lazy typers
 
+__outro__ 💓
 
 <img width="650" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
