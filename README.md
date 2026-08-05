@@ -64,7 +64,7 @@
   lazy typer
 
 
-__outro__ 💓<img width="120" height="130" alt="IMG_2772" src="https://github.com/user-attachments/assets/92f8b64c-778d-41ea-b237-41903e6a729e" />
+__outro__ 💓<img width="150" height="130" alt="IMG_2772" src="https://github.com/user-attachments/assets/92f8b64c-778d-41ea-b237-41903e6a729e" />
 
 
 
