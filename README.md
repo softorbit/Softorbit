@@ -35,6 +35,8 @@
 
 -  I have been deeply in love with unicorncore ever since childhood 🦄💕
 
+- I could come across flirty when it comes to talking to my moots but that’s just how I am !🩷
+  
 *gaming*
 
 - pleasee before taking inspiration off of my skins take permission from me first, alot of people have been taking inspiration from me as an excuse to copy sadly 💓
