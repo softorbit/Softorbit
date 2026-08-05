@@ -61,9 +61,11 @@
   
   bigots
   
-  lazy typers
+  lazy typer
 
-__outro__ 💓
+
+__outro__ 💓<img width="100" height="100" alt="IMG_2769" src="https://github.com/user-attachments/assets/678dcc25-4b4b-46ce-8853-9bdd518f8637" />
+
 
 <img width="650" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
