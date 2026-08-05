@@ -28,7 +28,6 @@
 
 - lesbian & pansexual & demisexual <img width="30" height="30" alt="IMG_2784" src="https://github.com/user-attachments/assets/0a0d309b-3bc9-480d-8a7a-a1c96eacc36e" />
 
-
 - my pronouns are she/her💘
 
 - oldest sister !💞
