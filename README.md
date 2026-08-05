@@ -39,7 +39,7 @@
 
 - I could come across as flirty when it comes to talking to my moots but that’s just how I am !🩷
 
-- I can only text my moots on Twitter & patreon , whoever tells you I got other socials IS a liar !
+- I only message my moots on Twitter and Patreon. Anyone saying I have other socials is lying !
   
 *gaming*
 
