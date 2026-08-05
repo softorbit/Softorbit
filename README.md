@@ -47,7 +47,7 @@
   
 - my fandoms are : eddsworld, countryhuman , country ball, metal family, Beatles , Five Nights at Freddy’s , Murder Drones , arcane !💞
 
-  *DNI* 
+*DNI LIST*
   p*dos,
   pr**ators,
   homophobics,
