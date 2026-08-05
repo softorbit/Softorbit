@@ -37,7 +37,9 @@
 
 -  I have been deeply in love with unicorncore ever since childhood 🦄💕
 
--  my favorite artist slash musician is *MICHAEL JACKSON* 💘
+-  my favorite musician is *MICHAEL JACKSON* 💘
+
+-  mostly, I spend my free times drawing whatever comes to my mind, every two day I suppose ?💕
 
 - I could come across as flirty when it comes to talking to my moots but that’s just how I am !🩷
 
