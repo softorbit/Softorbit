@@ -64,7 +64,8 @@
   lazy typers
 
 
-<img width="450" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" /> 
+<img width="600" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" /> <img width="400" height="449" alt="B0D12305-B5AD-439C-810A-AB60B5EB6EFF" src="https://github.com/user-attachments/assets/7134f285-7f49-458c-a339-ac3bc470b035" />
+
 
 
 <img width="1988" height="543" alt="IMG_2757" src="https://github.com/user-attachments/assets/cd83b2ec-8c9a-4b98-84ad-d813fc9a6d03" />
