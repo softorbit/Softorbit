@@ -19,30 +19,32 @@
 
 
                                         HI THERE ! 💞
+*about me* 💕
 
-- you could call me Michael or Mikey for short I prefer mikey especially , keep in mind that Michael isn’t my real name!
+- you could call me Michael or Mikey for short I prefer mikey especially , instead of my real name !
 
-- I’ve created this account as a pony town aesthetical display nothing much lol
+- am below the age of __18__
 
-- pleaseee if you’re going to take inspiration off of my skins take permission from me first to do so ! 💓 alot of people actually did that as an excuse to copy, and so because of that am not dealing with any of that anymore 
+- my pronouns are she/her💘
 
-- i honestly have a pretty weird obsession with the color pink !🩷
-
-- my pronouns are she/her 
-
--   I’ve been deeply inlove with unicorn core ever since childhood 🦄
-
--   please interact with me I don’t bite ToT , you might as well think am offtab but am actually not
-
--   just to let ya know that am taken so don’t even think of flirting with me or try Hit on me, it’s better if we keep things professional 
-
-  - homophobics / transphobics / pedos / predators DO NOT interact
-
-  - I would proudly say that am from Jordan, I really love my people
-
-  - trust me if you want to vent to me about anything such as de##repsion or family issues, am right here, even if I have never met you before am totally fine with it, comforting is the least I could do! 💞
+- I would proudly say am from Jordan, I love my people & country 💓
   
-- I might as well consider adding more stuff onto this repo, but that’s all for now! Thanks xx💓   
+- currently learning __farsi__ & __Español__
+
+- you could tell I have a pretty weird obsession with the color pink just by looking at my __Read.Me__
+
+-  I have been deeply in love with unicorncore ever since childhood 🦄💕
+
+-   
+
+  - 
+
+-
+
+  - 
+  
+- 
+  
 
 <img width="450" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
