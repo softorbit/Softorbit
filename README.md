@@ -27,6 +27,8 @@
 
 - my pronouns are she/her💘
 
+- oldest sister !💞
+
 - I would proudly say am from Jordan, I love my people & country 💓
   
 - currently learning __farsi__ & __Español__
@@ -67,7 +69,9 @@
   
   bigots
   
-  lazy typer
+  lazy typers
+
+  awful communicators 
 
 
 __outro__ 💓<img width="150" height="130" alt="IMG_2772" src="https://github.com/user-attachments/assets/92f8b64c-778d-41ea-b237-41903e6a729e" />
