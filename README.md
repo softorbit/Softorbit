@@ -35,15 +35,23 @@
 
 -  I have been deeply in love with unicorncore ever since childhood 🦄💕
 
--   
+*gaming*
 
-  - 
+- pleasee before taking inspiration off of my skins take permission from me first, alot of people have been taking inspiration from me as an excuse to copy sadly 💓
 
--
+- heavy w2i
 
-  - 
+- I don’t mind whether you sit right next to me or c+h with me when am off tab !
   
-- 
+- most of the time when am sitting all alone I could be off tab doing random shi so don’t expect me to respond back right after you whisper me 💕
+  
+- my fandoms are : eddsworld, countryhuman , country ball, metal family, Beatles , Five Nights at Freddy’s , Murder Drones !💞
+
+  *DNI* 
+  p*dos
+  pr**ators
+  homophobics
+  transphobics
   
 
 <img width="450" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
