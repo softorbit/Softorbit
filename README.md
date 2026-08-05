@@ -52,9 +52,11 @@
 
 - pleasee before taking inspiration off of my skins take permission from me first, alot of people have been taking inspiration from me as an excuse to copy sadly 💓
 
-- heavy w2i
+- heavy w2i<img width="20" height="20" alt="C190070B-14F4-402B-AE37-87B12DC27D57" src="https://github.com/user-attachments/assets/645d74a3-f19b-4c33-a78d-a3c5d7a8cd8b" />
 
-- I don’t mind whether you sit right next to me or c+h with me when am off tab !
+
+- I don’t mind whether you sit right next to me or c+h with me when am off tab !<img width="40" height="30" alt="A7C9CBD9-0851-49D7-92B2-9007F47F100F" src="https://github.com/user-attachments/assets/dcd71381-c1a7-42fe-9dbb-9c0a8ce4f379" />
+
   
 - most of the time when am sitting all alone I could be off tab doing random shi so don’t expect me to respond back right after you whisper me 💕
   
