@@ -26,13 +26,17 @@
 
 - am below the age of __18__
 
+- lesbian & pansexual & demisexual <img width="30" height="30" alt="IMG_2784" src="https://github.com/user-attachments/assets/0a0d309b-3bc9-480d-8a7a-a1c96eacc36e" />
+
+
 - my pronouns are she/her💘
 
 - oldest sister !💞
 
 - I would proudly say am from Jordan, I love my people & country 💓
   
-- currently learning __farsi__ & __Español__
+- currently learning __farsi__ & __Español__ <img width="35" height="30" alt="IMG_2785" src="https://github.com/user-attachments/assets/548ff99b-1aa1-486d-8b64-7e77c041a5cd" />
+
 
 - you could tell I have a pretty weird obsession with the color pink just by looking at my __README.md__
 
