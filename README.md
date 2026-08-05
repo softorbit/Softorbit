@@ -72,7 +72,7 @@ __outro__ 💓<img width="150" height="130" alt="IMG_2772" src="https://github.c
 
 
 
-<img width="650" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
+<img width="700" height="250" alt="7D309301-89B8-41C2-B48E-5C7390DB37F3" src="https://github.com/user-attachments/assets/8a08655e-4a71-4397-90d0-4394beccaa6c" />  
 
 <img width="1988" height="543" alt="IMG_2757" src="https://github.com/user-attachments/assets/cd83b2ec-8c9a-4b98-84ad-d813fc9a6d03" />
 
