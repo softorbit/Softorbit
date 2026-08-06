@@ -22,7 +22,7 @@
 *about me* 💕<img width="40" height="30" alt="EB42FC7E-6C1D-4C6D-9C88-3EBE9D25A378" src="https://github.com/user-attachments/assets/390b6c29-449a-49b8-b7c2-6386e326f46b" />
 
 
-- you could call me Michael or Mikey for short I prefer mikey especially , instead of my real name !
+- you could call me Michael or Mikey for short but I prefer mikey especially , instead of my real name !
 
 - am below the age of __18__
 
