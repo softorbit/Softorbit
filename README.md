@@ -43,7 +43,7 @@
 
 -  my favorite musician is *MICHAEL JACKSON* 💘
 
--  mostly, I spend my free times drawing whatever comes to my mind, every two day I suppose ?<img width="30" height="20" alt="25AEE655-BB60-4029-AB40-A03FD8117F21" src="https://github.com/user-attachments/assets/db5566c9-514c-414b-befd-de3e7142727d" />
+-  mostly, I spend my free times drawing whatever comes to my mind, every two days I suppose ?<img width="30" height="20" alt="25AEE655-BB60-4029-AB40-A03FD8117F21" src="https://github.com/user-attachments/assets/db5566c9-514c-414b-befd-de3e7142727d" />
 
 
 - I could come across as flirty when it comes to talking to my moots but that’s just how I am !🩷
