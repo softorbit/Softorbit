@@ -17,8 +17,11 @@ ${\textsf{\color{#A10079} I REALLY love to draw}}$
 
 ${\textsf{\color{#C70095} i just love everyone you wouldn’t have to follow rules to interact with me}}$
 
-${\textsf{\color{#FF42D3} my fandoms are: Zelda (in general),murder drones , the goofy movie , eddsworld , the beatles ,ch/cb}}$
-<img width="410" height="615" alt="BF014F3E-2870-4240-B5B3-05D9F90F892C" src="https://github.com/user-attachments/assets/d3c3f50c-55f8-4929-b8c0-94162a98c620" />
+
+${\textsf{\color{#BE0078} cute outro!}}$
+
+<img width="328" height="480" alt="9945D9D6-35D7-4B98-B1FC-4306A3FA2A13" src="https://github.com/user-attachments/assets/56ec0b7d-10c8-4850-9efe-09dbd3f474d5" />
+
 
 
 
