@@ -1,3 +1,4 @@
+<img width="1000" height="245" alt="IMG_2874" src="https://github.com/user-attachments/assets/64c86f1d-fb0b-4341-8c64-940bd82a46fd" />
 
 
 ${\textsf{\color{#cc2591} about me!}}$ 
